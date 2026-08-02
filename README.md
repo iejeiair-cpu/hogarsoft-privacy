@@ -1,0 +1,1 @@
+# hogarsoft-privacy
